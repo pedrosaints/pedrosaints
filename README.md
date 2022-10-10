@@ -1,4 +1,4 @@
-### Olá, me chamo Pedro H Santos B 👋
+### Olá, me chamo Pedro H Santos B ✌🏻
 👨🏻‍💻 Atualmente trabalho como Desenvolvedor Full Stack 
 
 ##
